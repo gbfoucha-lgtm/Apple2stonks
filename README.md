@@ -1,2 +1,2 @@
 # Apple2stonks
-![apple_stonk](stonks-meme.avif)
+![apple_stonk](stonky_apple.jpg)
